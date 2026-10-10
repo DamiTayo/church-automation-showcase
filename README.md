@@ -9,7 +9,7 @@ Welcoming visitors, checking on them after Sunday service and celebrating member
 
 I help churches organise these communications through personalised automation, shaped around their ministry, preferred wording and existing administrative tools.
 
-**Looking for a similar system for your church? [Let's discuss your project on LinkedIn.](https://www.linkedin.com/in/damilola-tayo-7378b0200/)**
+**Looking for a similar system for your church? [Let's discuss your project on LinkedIn.](https://www.linkedin.com/in/damilola-ojo-7378b0200/)**
 
 ## What your church can offer
 
@@ -44,7 +44,7 @@ Scope, hosting, account access, maintenance and handover terms are agreed for ea
 
 Tell me about your church, the communication tasks taking up your team's time and the experience you want visitors and members to have.
 
-**[Contact Damilola Tayo on LinkedIn →](https://www.linkedin.com/in/damilola-tayo-7378b0200/)**
+**[Contact Damilola Tayo on LinkedIn →](https://www.linkedin.com/in/damilola-ojo-7378b0200/)**
 
 [View my GitHub profile](https://github.com/DamiTayo)
 
